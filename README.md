@@ -1,2 +1,2 @@
 # HowTo-trabalho-escolar
- trabalho feito na etec
+ trabalho feito na etec.
